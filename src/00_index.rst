@@ -4,7 +4,7 @@ The First Pregnant Justice
 by Norman Hooper
 
 
-.. figure:: src/img/dore_solomon.jpg
+.. figure:: img/dore_solomon.jpg
    :alt: The Judgement of Solomon by Gustave Doré
 
    The Judgement of Solomon by Gustave Doré
@@ -14,4 +14,11 @@ by Norman Hooper
 `Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License`_.
 
 
+.. toctree::
+   :maxdepth: 2
+
+   01_morning_after
+
+
 .. _Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License: http://creativecommons.org/licenses/by-nc-sa/4.0/
+
