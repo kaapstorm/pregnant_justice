@@ -14,8 +14,13 @@ Robert "Rob" Searle:
     Member of the Family Defence Foundation, husband of Louise Newton
 
 William "Bill" E. Palatine:
-    Republican representative for the 23rd congressional district of
-    California
+    Republican representative for the 8th congressional district of
+    South Carolina
+
+.. # South Carolina has 7 congressional districts.
+
+Maritta Lewis:
+    Personal assistant to Bill Palatine
 
 James R. Nelson:
     Member of the Family Defence Foundation, husband of Katherine Nelson

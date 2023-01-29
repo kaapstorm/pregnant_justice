@@ -18,6 +18,8 @@ by Norman Hooper
    :maxdepth: 2
 
    01_morning_after
+   02_family_defence_foundation
+   03_pain_in_the_gut
 
 
 .. _Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License: http://creativecommons.org/licenses/by-nc-sa/4.0/
