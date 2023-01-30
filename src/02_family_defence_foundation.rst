@@ -68,11 +68,11 @@ fucking piece of shit."
 Come on. You would too. Don't tell me you didn't look at John and it
 didn't cross your mind."
 
-"You are what you do Bill. I'm not fucking my husband's PA's huband.
+"You are what you do Bill. I'm not fucking my husband's P.A.'s huband.
 Because I'm not the stupid fucking piece of shit. You are, Bill. Jesus.
 You're such a cliché."
 
-"Yeah, you know why? You know why men fuck their PAs? Because being a
+"Yeah, you know why? You know why men fuck their P.A.s? Because being a
 man is like being chained to a five hundred pound gorilla. Sometimes
 your body just drags you. But you wouldn't know what that's like. Men
 and women are different, and you will never understand how difficult it
@@ -128,7 +128,7 @@ everything is going to be fine. Nothing is fine right now."
 
 Bill went through to the bedroom and closed the door. And locked it.
 Then he went thorugh to the en-suite bathroom, closed the door, and
-locked it. Then he called his former PA.
+locked it. Then he called his former P.A.
 
 Maritta answered, "Billy?"
 
