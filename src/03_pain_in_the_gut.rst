@@ -6,11 +6,11 @@ A Pain in the Gut
 Neither aspirin nor acetaminophen were making much difference to Herman
 Crowbell's mild but constant belly ache, and ibuprofen was trying
 valiantly, but struggling. Thursday morning, Herman decided it was time
-to visit his GP.
+to visit his G.P.
 
-Mike Porter had been Herman's GP for decades. They went to the same
+Mike Porter had been Herman's G.P. for decades. They went to the same
 church. Herman was 51 years old, and he'd been through a few things
-with his GP.
+with his G.P.
 
 .. todo: what is a table-bed-thing called?
 
@@ -36,7 +36,7 @@ wouldn't take us seriously. But," confided Herman, "between you and me,
 none of the justices are really the people they want you to believe
 they are."
 
-"Ha! Oh sure! Of course. I'm a GP. I know what it means to present
+"Ha! Oh sure! Of course. I'm a G.P. I know what it means to present
 confidence. If my patient's don't trust me, what kind of a quack would
 I be?"
 
@@ -71,11 +71,14 @@ Dr Mike Porter stared at the test. Then he started at Herman.
 "What's up, Doc?" smiled Herman, "Have you figured out what's causing my
 belly ache?"
 
-"Well, uh, I know what it can't be. It can't possibly be that you're pregnant. Because that's not possible. Have you swallowed any, uh, toys recently?"
+"Well, uh, I know what it can't be. It can't possibly be that you're
+pregnant. Because that's not possible. Have you swallowed any, uh, toys
+recently?"
 
 "No?"
 
-"What about the kind of things that a man would be too embarrassed to tell their GP, like, accidents involving anal play?"
+"What about the kind of things that a man would be too embarrassed to
+tell his G.P., like, accidents involving anal play?"
 
 "What?"
 
@@ -87,7 +90,10 @@ belly ache?"
 
 "Uh, they're not those kinds of friends."
 
-"The reason I ask is that, you know, stethoscopes aren't perfect diagnostic tools, it's that something inside your abdoment has a regular rhythm. Not totally unlike a vibrator. But actually more like a fetal heartbeat."
+"The reason I ask is that, you know, stethoscopes aren't perfect
+diagnostic tools, it's that something inside your abdoment has a
+regular rhythm. Not totally unlike a vibrator. But actually more like a
+fetal heartbeat."
 
 "Well, obviously that's not it."
 
