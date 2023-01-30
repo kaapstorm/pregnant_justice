@@ -83,8 +83,8 @@ not just a cliché. You're a pathetic cliché. I can't actually look at
 you right now. I'm going home."
 
 "Baby. Don't do that. It was just the one time. It meant nothing. It's
-all over. What are we going to tell the boys? What about Maritta and
-John?"
+all over. If you go home, what are we going to tell the boys? What
+about Maritta and John?"
 
 "Dude. You're the fucking congressman. Bullshit excuses are what you do
 for a living. You'll come up with something."
