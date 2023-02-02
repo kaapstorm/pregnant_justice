@@ -8,7 +8,7 @@ table, and looked at the time.
 
 12:42. Urgh.
 
-He tried to remember last night. Rob and Louise had come round for
+He tried to remember last night. Rob and Louise had come over for
 dinner. He couldn't remember what time they left. In fact, he couldn't
 remember the end of the evening. At all.
 

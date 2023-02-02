@@ -6,18 +6,16 @@ A Pain in the Gut
 Neither aspirin nor acetaminophen were making much difference to Herman
 Crowbell's mild but constant belly ache, and ibuprofen was trying
 valiantly, but struggling. Thursday morning, Herman decided it was time
-to visit his G.P.
+to visit the doctor.
 
-Mike Porter had been Herman's G.P. for decades. They went to the same
-church. Herman was 51 years old, and he'd been through a few things
-with his G.P.
-
-.. todo: what is a table-bed-thing called?
+Mike Porter had been Herman's primary care physician for decades. They
+went to the same church. Herman was 51 years old, and he'd been through
+a few things with his doctor.
 
 After asking after each other's families and a little catch-up, Mike
-asked Herman to lie down on the doctor's table-bed-thing for a "little
-look see". He took out his stethoscope, lifted Herman's shirt, and
-noticed the scar from the stitches from that night in September.
+asked Herman to lie down on the examination table for a "little look
+see". He took out his stethoscope, lifted Herman's shirt, and noticed
+the scar from the stitches from that night in September.
 
 "What's that?" Mike asked.
 
@@ -36,7 +34,7 @@ wouldn't take us seriously. But," confided Herman, "between you and me,
 none of the justices are really the people they want you to believe
 they are."
 
-"Ha! Oh sure! Of course. I'm a G.P. I know what it means to present
+"Ha! Oh sure! Of course. I'm a doctor. I know what it means to present
 confidence. If my patient's don't trust me, what kind of a quack would
 I be?"
 
@@ -78,17 +76,17 @@ recently?"
 "No?"
 
 "What about the kind of things that a man would be too embarrassed to
-tell his G.P., like, accidents involving anal play?"
+tell his doctor, like, accidents involving anal play?"
 
 "What?"
 
 "Did something accidentally end up inside your but?"
 
-"No."
+Herman laughed. "No."
 
 "Maybe that night when you had a few whiskies?"
 
-"Uh, they're not those kinds of friends."
+"Uh, they're not that kind of friends."
 
 "The reason I ask is that, you know, stethoscopes aren't perfect
 diagnostic tools, it's that something inside your abdoment has a
