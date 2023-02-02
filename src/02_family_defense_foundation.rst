@@ -1,4 +1,4 @@
-The Family Defence Foundation
+The Family Defense Foundation
 =============================
 
 .. note:: November 2014
@@ -236,13 +236,13 @@ bottle of wine, and talk about some bad-ass choices."
 .. note:: March 2015
 
 Louise leaned in over the dinner table. "I was thinking we could call it
-the 'Family Defence Foundation'. Firstly, because anything with the
+the 'Family Defense Foundation'. Firstly, because anything with the
 word 'family' in it sounds like a right-wing dog whistle. And secondly,
 because the truth is that the majority of women who get abortions have
 a family."
 
 "I love it," said Katherine Nelson. "Let's do it."
 
-"The Family Defence Foundation!" James Nelson raised his glass.
+"The Family Defense Foundation!" James Nelson raised his glass.
 
 The four of them chinked, and took another of many sips.

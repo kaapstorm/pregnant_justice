@@ -8,10 +8,10 @@ Guinevere "Gwin" Crowbell:
     Wife of Herman Crowbell
 
 Louise Newton:
-    Founder of the Family Defence Foundation, wife of Robert Searle
+    Founder of the Family Defense Foundation, wife of Robert Searle
 
 Robert "Rob" Searle:
-    Member of the Family Defence Foundation, husband of Louise Newton
+    Member of the Family Defense Foundation, husband of Louise Newton
 
 William "Bill" E. Palatine:
     Republican representative for the 8th congressional district of
@@ -23,10 +23,10 @@ Maritta Lewis:
     Personal assistant to Bill Palatine
 
 James R. Nelson:
-    Member of the Family Defence Foundation, husband of Katherine Nelson
+    Member of the Family Defense Foundation, husband of Katherine Nelson
 
 Katherine Nelson:
-    Member of the Family Defence Foundation, wife of James R. Nelson
+    Member of the Family Defense Foundation, wife of James R. Nelson
 
 Hermione Mercury:
     Reporter for the New York Daylight
