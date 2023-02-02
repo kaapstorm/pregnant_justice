@@ -4,7 +4,7 @@ The Family Defense Foundation
 .. note:: November 2014
 
 The elections had been exhausting, both personally, and for his whole
-family, and so Bill Palantine decided to take his wife, Mary, and their
+family, and so Bill Palatine decided to take his wife, Mary, and their
 two boys, Cory and Jake, to the French Alps in December for a skiing
 vacation. He pitched it to his personal assistant, Maritta, over
 WhatsApp:
