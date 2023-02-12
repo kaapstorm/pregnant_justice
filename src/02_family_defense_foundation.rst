@@ -9,6 +9,8 @@ two boys, Cory and Jake, to the French Alps in December for a skiing
 vacation. He pitched it to his personal assistant, Maritta, over
 WhatsApp:
 
+**Maritta**
+
     "M"
 
 "Hey"
@@ -32,6 +34,8 @@ persuasive. 😏😉😇"
 
 
 .. note:: December 2014
+
+**Maritta**
 
     "M"
 
@@ -92,6 +96,8 @@ for a living. You'll come up with something."
 
 .. note:: January 2015
 
+**Mary**
+
 "William"
 
     "How you doing Mary?"
@@ -117,6 +123,8 @@ everything is going to be fine. Nothing is fine right now."
 
 
 .. note:: Also January 2015
+
+**Maritta**
 
 "Billy?"
 
