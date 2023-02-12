@@ -241,6 +241,48 @@ after, and come up with some plans."
 bottle of wine, and talk about some bad-ass choices."
 
 
+.. note:: Still February 2015
+
+Maritta Lewis lay on the examination bed. A tear broke free from one of
+her eyes, and cascaded down her cheek.
+
+Louise Nelson squeezed her hand. "You're going to be fine," Louise
+whispered.
+
+"You _are_ going to be fine," Dr Bruce Howard confirmed. He pointed at
+the monitor. "And your little squiggle is looking perfectly healthy."
+
+Maritta's chest clenched as she suppressed a sob.
+
+"Doctor?" asked Louise, trying to distract the three of them from weight
+of the atmosphere in the small room.
+
+"Yes, Louise?"
+
+"Those newspaper clippings on the wall. What are they about?"
+
+"Oh, yah, that was pretty cool." Bruce smiled. "I don't know if you can
+place my accent, but I'm from South Africa. I used to practise at a big
+public hospital in Cape Town. I performed a C-section at six months, on
+a woman who had an ectopic pregnancy. Her fallopian tube had ruptured,
+and the placenta had attached to her kidney."
+
+"Jesus!" gasped Louise. "That must have been agonizing!"
+
+"Yah, I can't imagine. She lived in a township, and she didn't see a
+doctor because doctors cost money, so she thought she would just power
+through."
+
+"Oh my God!"
+
+"The pre-eclampsia got too much, and so she came through to the
+hospital, and we did an emergency C-section. And the baby made it! It
+made the news. So. Yah. That was my fifteen minutes of fame," grinned
+Bruce.
+
+"Wow." Louise exchaled. Abdominal pregnancy. That's insane.
+
+
 .. note:: March 2015
 
 Louise leaned in over the dinner table. "I was thinking we could call it

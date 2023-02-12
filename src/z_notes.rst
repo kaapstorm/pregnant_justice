@@ -28,6 +28,9 @@ James R. Nelson:
 Katherine Nelson:
     Member of the Family Defense Foundation, wife of James R. Nelson
 
+Dr Bruce Howard:
+    Obsetrician and gynaecologist
+
 Hermione Mercury:
     Reporter for the New York Daylight
 
