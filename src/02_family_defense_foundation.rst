@@ -259,7 +259,7 @@ of the atmosphere in the small room.
 
 "Yes, Louise?"
 
-"Those newspaper clippings on the wall. What are they about?"
+"That newspaper clipping on the wall. What is that about?"
 
 "Oh, yah, that was pretty cool." Bruce smiled. "I don't know if you can
 place my accent, but I'm from South Africa. I used to practise at a big
@@ -275,10 +275,12 @@ through."
 
 "Oh my God!"
 
-"The pre-eclampsia got too much, and so she came through to the
-hospital, and we did an emergency C-section. And the baby made it! It
-made the news. So. Yah. That was my fifteen minutes of fame," grinned
-Bruce.
+"You see, the kidney provided the placenta all the blood and nutrients
+that the fetus needed. But the mother's pre-eclampsia got too much,
+and so she came through to the hospital. You know, it's very, very
+uncomfortable, and painful, and it messes with your digestive tract. We
+did an emergency C-section, and the baby made it! It made the news. So.
+Yah. That was my fifteen minutes of fame," grinned Bruce.
 
 "Wow." Louise exchaled. Abdominal pregnancy. That's insane.
 
