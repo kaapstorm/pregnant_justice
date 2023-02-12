@@ -210,7 +210,7 @@ up he's screwed."
 
 "Republican?"
 
-"What do you think?"
+"What do you think?" smirked Louise.
 
 "It's always the fucking Republican fake pro-lifers who are totally
 onboard with abortions when it's their mistresses. And it's also the
@@ -218,19 +218,19 @@ fucking Republicans who can't have their hypocracy found out, cos their
 voters don't think they're voting for politicians, they think they're
 voting for saints."
 
-"Yes, baby. I know." Rob's litle rants were endearing and all, but she
+"Yes, Baby. I know." Rob's litle rants were endearing and all, but she
 had an idea, an actual, practical idea, she needed to discuss. "Listen.
 This is not the only case like this. It's the same shit every time. But
 this time I'm going to do something about it. I want to start a project.
 Maybe team up with the Nelsons. I've had enough of rearranging the deck
 chairs. You saw the Republican gains in November. All that 'Hope' and
-'Change' shit. We both know what's happening to the ACA. When you can't
-make the changes you need through the right channels, when all the
+'Change' shit. We both know what's happening to the A.C.A. When you
+can't make the changes you need through the right channels, when all the
 channels have been broken, and blocked, when people have no good
 choices any more, then people need to make some bad-ass choices. Me. I
 am gonna make some bad-ass choices."
 
-Rob gave her a solid side eye. "What do mean 'bad-ass choices' Love?"
+Rob gave her a solid side eye. "What do mean 'bad-ass choices', Love?"
 
 "These old white guys, they're never going to understand, unless things
 get a whole lot more real for them. I don't know what that means, yet,
