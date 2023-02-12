@@ -15,6 +15,7 @@ by Norman Hooper
 
 
 .. toctree::
+   :numbered:
    :maxdepth: 2
 
    01_morning_after
@@ -22,6 +23,7 @@ by Norman Hooper
    03_pain_in_the_gut
    04_ectopic
 
+   z_notes
+
 
 .. _Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License: http://creativecommons.org/licenses/by-nc-sa/4.0/
-
