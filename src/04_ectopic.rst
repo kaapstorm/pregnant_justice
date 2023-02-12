@@ -8,11 +8,11 @@ Ectopic
 "No problem, Louise. I'm very curious what this is about." Dr Bruce
 Howard responded.
 
-"Well I'm curious by nature, and you know when you've got a splinter in
-your finger, and every time you do something that touches it, it pricks
-you? Well your newspaper clipping has been like that in my brain. I
-keep thinking about that woman with the ectopic pregnancy, and I have
-questions."
+"Curiosity is the reason I'm calling you. You know when you've got a
+splinter in your finger, and every time you do something that touches
+it, it pricks you? Well your newspaper clipping has been like that in
+my brain. I keep thinking about that woman with the ectopic pregnancy.
+And I have questions."
 
 "OK. Well, I love questions. Ask away."
 
@@ -23,7 +23,7 @@ very painful, and of course dangerous, and the pregnancy will be
 terminated as soon as possible. Preferably with medication, but surgery
 if necessary."
 
-"Right. Of course. But she didn't seek any medical advice."
+"Right. Of course. But that woman didn't seek any medical advice."
 
 "Yah, that's right."
 
@@ -31,25 +31,33 @@ if necessary."
 
 "Only in cases where the mother is in a remote rural environment, or
 desperately poor, or maybe, rarely, in a very conservative religious
-setting, and too afraid of seeking professional help."
+setting, and too afraid to seek professional help."
 
-"Oh, yeah, what I mean is, how often does the placenta attach to the
-kidney."
+"Oh, yeah, what I was getting at is how often does the placenta attach
+to the kidney."
 
-"Great question. I don't know. I guess it might depend how the fallopian
-tube bursts. I mean you've got a lot going on in there. You've got the
-intestines, and the bladder and the kidneys and the liver. If the
-placenta can't pull in the nutrients it needs, the fetus will die."
+"Great question. I don't know. I guess it might depend on where the
+fallopian tube bursts. I mean you've got a lot going on in there. You've
+got the intestines, and the bladder and the kidneys and the liver. If
+the placenta can't pull in the nutrients it needs, the fetus will
+die."
 
 "Right." There was a moment of silence as Louise pondered, and then she
 continued, "So first the zygote needs, what, protein, like yolk in a
 chicken egg, so it can divide, and then it becomes placenta and fetus,
 and needs blood and oxygen and stuff."
 
-"Yah, very basically, yah, and normally the uterus provides all of that,
-of course, but obviously a kidney can do the trick, if the fetus is
-very, very lucky ... and the mum's circumstances are very, very
-unlucky."
+"Yah, very basically, yah. You've skipped a few steps, like the zygote
+starts off as a blastocyte, and it has a protective shell as it passes
+down the fallopian tube. Progesterone prepares the endometrium -- the
+wall of the uterus -- for the blastocyte. The blastocyte breaks out of
+its shell, and implants in the endometrium -- they exchange hormones to
+help it attach. The outer layer of the blastocyte becomes the placenta.
+The inner cells become an embryo, and then a fetus. In the case of the
+woman in the newspaper clipping, obviously all of that happened in the
+fallopian tube, and by the time the fallopian tube burst, the placenta
+was big enough to be pushed against the kidney, and to attach to it
+successfully.
 
 "Right. ... Huh. ... Well, Dr Howard, thank you very much for your time.
 This has been fascinating."
@@ -94,8 +102,14 @@ the start of its second trimester."
 
 "I don't know. But if I had to guess, I would say someone drugged you.
 Someone with medical training made an incision, and somehow, using a
-method I have never heard of, stuck, uh, attached, fixed a zygote onto
-your left kidney."
+method I have never heard of, attached a blastocyte onto your left
+kidney."
+
+"A what?"
+
+"A blastocyte is the thing that becomes a fetus. It's what implants
+into the wall of the uterus. But in your case, it's attached to your
+kidney."
 
 "Oh my goodness."
 
@@ -156,31 +170,36 @@ this?"
 "Yes, these are moral decisions, not just medical ones."
 
 "Right. Well. Yeah, the 'heartbeat bill', as you know, bans abortion
-from six weeks. Which is about four weeks after conception. Pregnancy is
-measured from the L.M.P. or last menstrual period and conception
-usually happens roughly two weeks after that. So your fetus had what
-legislators refer to as a 'heartbeat' at four weeks. I don't mean to be
-deprecating or pedantic. It's just a tube at four weeks. The chambers
-develop a few weeks later."
+from six weeks of gestation, which is about four weeks after
+conception. Pregnancy is measured from the L.M.P. or last menstrual
+period and most often conception happens roughly two weeks after that.
+So your fetus had what legislators refer to as a 'heartbeat' at four
+weeks. I don't mean to be deprecating or pedantic, but it's just a tube
+at that point. The chambers develop a few weeks later."
 
-"So, no abortion then."
+"Thank you, Doctor. That's what I needed to know. There will be no
+abortion then."
 
-It was Peter's turn to stare at Herman. "This will kill you."
+It was Peter's turn to stare at Herman. "As I said, this will kill you."
 
 "You don't know that."
 
-"You're right. Women have survived abdominal pregnancies. But you're not in your twenties any more, Herman. And even if you were, you're not built for this. You can't be serious."
+"You're right, women have survived abdominal pregnancies. But you're
+not in your twenties any more, Herman. And even if you were, you're not
+built for this. You can't be serious."
 
 "It'a human being, Peter."
 
-"It's a human fetus. It's consuming your calcium. You already have an
-increased chance of osteoporosis. Your heart is having to do more work,
-tyo get the same amount of oxygen to your body. Everything in your body
-needs to kick up a notch, just in order to maintain itself. Women are
-evolved for this, and it's dangerous even for them after 40. You are
-not evolved for this, and you are approaching 50. As an obsetrician,
-and if I say so myself, a good one, I am advising you in the strongest
-possible terms, Justice Crowbell, Herman, you need an abortion."
+"It's a human fetus. It's consuming your calcium. It's already increased
+your chances of osteoporosis. Your heart is having to do more work to
+get the same amount of oxygen to your body. Everything in your body
+needs to kick up a notch just in order to maintain its normal
+operation. It is feeding off you. Women are evolved for this, and a
+normal pregnancy is dangerous even for them after 40. You are not
+evolved for this, this pregnancy is not taking place in a uterus, and
+you are approaching 50. As an obsetrician, and if I say so myself a
+good one, please trust me. I am advising you in the strongest possible
+terms, Justice Crowbell, Herman, you need an abortion."
 
 "Thank you Doctor Buchanan. But I'm afraid I can't do that. If this baby
 kills me, at least I will have died trying to do the right thing.
@@ -190,11 +209,11 @@ for?"
 Peter sighed. "OK. I think you're crazy. But OK. In that case, I will do
 everything I can to keep you alive. Your fetus has a good chance of
 surival from the seventh month, and maybe we can push that up to about
-week 24. And we need to check you in, in about a month or so."
+week 24. And we need to check you into hospital in about a month or so."
 
 "OK."
 
-"And now, Herman, I imaging you need to have an awkward conversation
+"And now, Herman, I imagine you need to have an awkward conversation
 with your wife."
 
 "Hahahaha!" Herman laughed in nervous relief. "Wow. Yes, I sure do!"
@@ -208,7 +227,7 @@ the consultation, but being alone in the car, his mind had just been
 buffetted by a hurricane of thoughts. He stopped the car at the top of
 the drive, and just sat. He felt an emotion well up inside. An emotion
 he couldn't identify, but it was rising like a tide, until it rose over
-him, and sunk under uncontrollable sobbing.
+him, and he sunk under uncontrollable sobbing.
 
 After what must have been about half an hour, forty five minutes, he
 took himself inside, and climbed into a shower. The hot water poured
@@ -222,31 +241,33 @@ so wrong? He thought they were kind and caring. Probably the most
 liberal friends he had, but their hearts always seemed in the right
 place. How could this have anything to do with them?
 
-There is a word for involuntary pregnancy. Rape. He was raped. He
-couldn't remember anything. Like having your drink drugged, and then
-raped.
+There is a word for non-consensual pregnancy: Rape. He was raped. He
+couldn't remember anything about it, like having your drink drugged, and
+then being raped.
 
 Is that what happened? Did Rob and Louise drug his drink? And then take
 him somewhere, and impregnate him?
 
-He could check the security footage. He never checked it before, because
-he had just believed them, when they told him about the knife and the
-trip to the E.R. But he'll check now.
+He could check the security footage of the night like Doctor Buchanan
+had suggested. He never checked it before, because he had just believed
+them when they told him about the knife and the trip to the E.R. But
+he'll check it now.
 
-He got out, and with a towel around his waist, made his way to his
-study. He found the user guide for the security system, looked up how
-to view archived footage, and then on his computer, logged in, and
-navigated back to September. He found the night. He found where Rob and
-Louise walked him from the front door to their car.
+He got out the shower, and with a towel around his waist, made his way
+to his study. He found the user guide for the security system, looked
+up how to view archived footage, and then on his computer, logged in,
+and navigated back to September. He found the night. He found where Rob
+and Louise walked him from the front door to their car.
 
 Their backs were to the camera. Rob was steadying him. He looked more
 than drunk. He put his left arm around Rob's shoulder. He couldn't
 balance himself, and his head was unstable. Louise took his right arm.
 His hand was not on his belly. If he was wounded, someone would have
-been applying pressure to the wound, but nobody was. He did not appear
-to be in pain. Just very drunk. Or drugged.
+been applying pressure to the wound, surely, but nobody was. He did not
+appear to be in pain. Just very drunk. Or drugged.
 
 The emotions started coming back. He stared at the screen, the image
 blurred, as tears rolled down his face. He realized was shaking.
 
-He took himself to bed, curled into the fetal position, and fell asleep.
+He took himself to bed, curled into the fetal position, and cried, until
+he fell asleep from emotional exhaustion.
