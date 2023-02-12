@@ -131,6 +131,6 @@ important you haven't told me. Now either this is a joke in very poor
 taste on your part, or you have some extremely creative and sociopathic
 enemies."
 
-"This is not joke."
+"This is not a joke."
 
 "In that case, tell me more about this scar."
