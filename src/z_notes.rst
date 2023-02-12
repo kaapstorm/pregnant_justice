@@ -28,6 +28,9 @@ James R. Nelson:
 Katherine Nelson:
     Member of the Family Defense Foundation, wife of James R. Nelson
 
+Dr Peter Buchanan:
+    Obsetrician and gynaecologist
+
 Dr Bruce Howard:
     Obsetrician and gynaecologist
 

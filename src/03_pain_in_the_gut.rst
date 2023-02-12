@@ -120,16 +120,18 @@ going to love this so much. He's going to tease me about this for the
 rest of my life, but he's a great guy. You'll like him."
 
 
-.. note:: Monday December 12, 2022
+.. note:: Monday December 12, 2022. 10:15 AM
 
-"Holy fuck."
+"Holy fuck," breathed Dr Peter Buchanan.
 
-"Hey, Doc, you can't do this to me. What is it?"
+"Hey, Doc, you can't do this to me. What is it?" Herman's worry was
+audible.
 
-"Fuck. Fuck fuck fuck. Justice Crowbell, there is something very
-important you haven't told me. Now either this is a joke in very poor
-taste on your part, or you have some extremely creative and sociopathic
-enemies."
+But Peter wasn't listening. He moved even closer to the ultrasound
+monitor. "Fuck. Fuck fuck fuck. Justice Crowbell, there is something
+very important you haven't told me. Now either this is a joke in very
+poor taste on your part, or you have some extremely creative and
+sociopathic enemies."
 
 "This is not a joke."
 
