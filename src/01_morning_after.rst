@@ -28,19 +28,19 @@ He didn't have a headache. His belly felt a little sore though.
 
 He decided to get up. Maybe he'd find Gwinny in the livingroom. As he
 sat up he felt a deep ache in his stomach. He looked down, lifted his
-pyjama shirt, and there, about two inches south west of his belly
+pajama shirt, and there, about two inches south west of his belly
 button, was an inch an a half of surgical stitches! What. The fuck?!
 
 "Gwin!" he called, as he got to his feet, and walked down the passage
 into the livingroom. "Gwin!"
 
-She was sitting on the sofa, still in her pyjamas, cradling a mug of
+She was sitting on the sofa, still in her pajamas, cradling a mug of
 coffee and looking at something on her iPad. "Gwin. Why do I have
 stitches on my belly?!"
 
 "What?!" said Gwin.
 
-"I have stitches on my belly! Look," Herman said, lifting his pyjama
+"I have stitches on my belly! Look," Herman said, lifting his pajama
 shirt. "What the fuck happened last night? I can't remember anything
 after about 10 or 11."
 

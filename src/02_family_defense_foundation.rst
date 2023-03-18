@@ -218,7 +218,7 @@ fucking Republicans who can't have their hypocracy found out, cos their
 voters don't think they're voting for politicians, they think they're
 voting for saints."
 
-"Yes, Baby. I know." Rob's litle rants were endearing and all, but she
+"Yes, Baby. I know." Rob's little rants were endearing and all, but she
 had an idea, an actual, practical idea, she needed to discuss. "Listen.
 This is not the only case like this. It's the same shit every time. But
 this time I'm going to do something about it. I want to start a project.
@@ -249,7 +249,7 @@ her eyes, and cascaded down her cheek.
 Louise Nelson squeezed her hand. "You're going to be fine," Louise
 whispered.
 
-"You _are_ going to be fine," Dr Bruce Howard confirmed. He pointed at
+"You *are* going to be fine," Dr Bruce Howard confirmed. He pointed at
 the monitor. "And your little squiggle is looking perfectly healthy."
 
 Maritta's chest clenched as she suppressed a sob.
@@ -282,7 +282,7 @@ uncomfortable, and painful, and it messes with your digestive tract. We
 did an emergency C-section, and the baby made it! It made the news. So.
 Yah. That was my fifteen minutes of fame," grinned Bruce.
 
-"Wow." Louise exchaled. Abdominal pregnancy. That's insane.
+"Wow." Louise exhaled. "Abdominal pregnancy. That's insane."
 
 
 .. note:: March 2015

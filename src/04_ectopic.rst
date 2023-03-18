@@ -84,8 +84,8 @@ remember the incident. They just told you afterwards."
 "Yeah, that's right," confirmed Herman Crowbell.
 
 "So, if we forget everything anyone said, and look only at the facts,
-here is what we've got: You have an incision on your abdoment. It's
-straight, about three fingers long. It's not a tear. You got it at the
+here is what we've got: You have a scar on your abdoment. It's
+straight, about two inches long. It's not a tear. You got it at the
 end of September. It's now the middle of December. And you have a
 placenta attached to your kidney, containing a human fetus roughly at
 the start of its second trimester."
@@ -140,11 +140,12 @@ is ... extraordinary."
 
 Herman just looked at him. He had no words.
 
-Dr Buchanan thought, "I'm not sure this is the right time for this, but
-maybe it will give you a positive way to frame your situation. There's
-been a movie about this, you know? Starring Arnold Schwarzenegger. I
-forget what it was called. It's about a pregnant man. Well. Life
-imitates art. Arnold Schwarzenegger played you. That's something."
+Peter Buchanan thought out loud, "I'm not sure this is the right time
+for this, but maybe it will give you a positive way to frame your
+situation. There's been a movie about this, you know? Starring Arnold
+Schwarzenegger. I forget what it was called. It's about a pregnant man.
+Well. Life imitates art. Arnold Schwarzenegger played you. That's
+something."
 
 "Oh!" Peter suddenly added, "Obviously we need to get rid of this
 immediately!"
@@ -169,13 +170,13 @@ this?"
 
 "Yes, these are moral decisions, not just medical ones."
 
-"Right. Well. Yeah, the 'heartbeat bill', as you know, bans abortion
-from six weeks of gestation, which is about four weeks after
-conception. Pregnancy is measured from the L.M.P. or last menstrual
-period and most often conception happens roughly two weeks after that.
-So your fetus had what legislators refer to as a 'heartbeat' at four
-weeks. I don't mean to be deprecating or pedantic, but it's just a tube
-at that point. The chambers develop a few weeks later."
+"Ah. Well. Yeah, the 'heartbeat bill', as you know, bans abortion from
+six weeks of gestation, which is about four weeks after conception.
+Pregnancy is measured from the L.M.P. or last menstrual period and most
+often conception happens roughly two weeks after that. So your fetus
+had what legislators refer to as a 'heartbeat' at four weeks. I don't
+mean to be deprecating or pedantic, but it's just a tube at that point,
+not really a heart. The chambers develop a few weeks later."
 
 "Thank you, Doctor. That's what I needed to know. There will be no
 abortion then."
@@ -184,8 +185,8 @@ It was Peter's turn to stare at Herman. "As I said, this will kill you."
 
 "You don't know that."
 
-"You're right, women have survived abdominal pregnancies. But you're
-not in your twenties any more, Herman. And even if you were, you're not
+"You're right, women have survived abdominal pregnancies. But you're not
+in your twenties any more, Herman. And even if you were, you're not
 built for this. You can't be serious."
 
 "It'a human being, Peter."
@@ -231,10 +232,10 @@ him, and he sunk under uncontrollable sobbing.
 
 After what must have been about half an hour, forty five minutes, he
 took himself inside, and climbed into a shower. The hot water poured
-down on him. He sat on the floor, hugging his knees, his head resting
-on his arms, his eyes closed, breathing the humid warmth rising off his
-chest. As the shower soaked his mind, his turbulent emotions started to
-separate out into identifiable thoughts.
+down on him. He sat on the floor, hugging his knees, his forehead
+resting on his arms, his eyes closed, breathing the humid warmth rising
+off his chest. As the shower soaked his mind, his turbulent emotions
+started to separate out into identifiable thoughts.
 
 Rob and Louise had something to do with this. How could he have got them
 so wrong? He thought they were kind and caring. Probably the most

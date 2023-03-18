@@ -4,7 +4,7 @@ Notes
 Dramatis personae
 -----------------
 
-Herman Crowbell ("crow" like the bird):
+Justice Herman Crowbell ("crow" like the bird):
     An associate justice on the US Supreme Court
 
 Guinevere "Gwin" Crowbell:
@@ -20,7 +20,7 @@ William "Bill" E. Palatine:
     Republican representative for the 8th congressional district of
     South Carolina
 
-.. # South Carolina has 7 congressional districts.
+.. (South Carolina has 7 congressional districts.)
 
 Maritta Lewis:
     Personal assistant to Bill Palatine
@@ -32,16 +32,16 @@ Katherine Nelson:
     Member of the Family Defense Foundation, wife of James R. Nelson
 
 Dr Peter Buchanan:
-    Obsetrician and gynaecologist
+    Gynaecologist, and obsetrician of Herman Crowbell
 
 Dr Bruce Howard:
-    Obsetrician and gynaecologist
+    Obsetrician and gynaecologist of Maritta Lewis
 
-Hermione Mercury:
-    Reporter for the New York Daylight
+Dee-Ann Freeman:
+    Reporter for the New York Chronicle
 
-Jonathon Whitaker:
-    Reporter for the Washington Time
+Jonathan Whitaker:
+    Reporter for the Washington Mercury
 
 Rick Bellingend-Hoff:
     Host of Burning Questions on the Fox News Network
