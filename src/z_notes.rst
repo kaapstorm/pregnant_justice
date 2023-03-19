@@ -40,8 +40,11 @@ Dr Bruce Howard:
 Dee-Ann Freeman:
     Reporter for the New York Chronicle
 
-Jonathan Whitaker:
-    Reporter for the Washington Mercury
-
 Rick Bellingend-Hoff:
     Host of Burning Questions on the Fox News Network
+
+Emily:
+    Personal Assistant to Herman Crowbell.
+
+Jonathan Whittaker-Innes:
+    Reporter for the Washington Mercury
