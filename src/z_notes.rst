@@ -11,10 +11,12 @@ Guinevere "Gwin" Crowbell:
     Wife of Herman Crowbell
 
 Louise Newton:
-    Founder of the Family Defense Foundation, wife of Robert Searle
+    Founder of the Family Defense Foundation, wife of Robert Searle,
+    lawyer.
 
 Robert "Rob" Searle:
-    Member of the Family Defense Foundation, husband of Louise Newton
+    Member of the Family Defense Foundation, husband of Louise Newton,
+    electronic engineer.
 
 William "Bill" E. Palatine:
     Republican representative for the 8th congressional district of
@@ -26,10 +28,12 @@ Maritta Lewis:
     Personal assistant to Bill Palatine
 
 James R. Nelson:
-    Member of the Family Defense Foundation, husband of Katherine Nelson
+    Member of the Family Defense Foundation, husband of Katherine
+    Nelson, mechanical engineer.
 
 Katherine Nelson:
-    Member of the Family Defense Foundation, wife of James R. Nelson
+    Member of the Family Defense Foundation, wife of James R. Nelson,
+    hospital matron.
 
 Dr Peter Buchanan:
     Gynaecologist, and obsetrician of Herman Crowbell

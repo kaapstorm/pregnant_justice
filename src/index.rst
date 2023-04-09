@@ -16,7 +16,7 @@ by Norman Hooper
 
 .. toctree::
    :numbered:
-   :maxdepth: 2
+   :maxdepth: 1
 
    01_morning_after
    02_family_defense_foundation
@@ -24,7 +24,7 @@ by Norman Hooper
    04_ectopic
    05_news
    06_coopetition
-
+   07_the_gun_in_the_safe
    z_notes
 
 
