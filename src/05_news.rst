@@ -249,3 +249,59 @@ with me," proposed Dee-Ann.
 
 "Right. Well, you have two minutes, and then I have a call. Let's hear
 it."
+
+Dee-Ann started, "How would you like this to pan out, say, five years
+down the line?"
+
+Jonathan thought, "Well I hope this whole abortion issue becomes
+settled, one way or the other."
+
+"One way or the other?" Dee-Ann sounded incredulous, "You don't care
+which way?"
+
+"Well, ideally I'd prefer women to have a choice, of course, but I
+don't think I get to weigh in on that. I just report on it."
+
+"You're a shit ally, Jonathan Whittaker-Innes. You have an opportunity
+here to help the other half of humanity. My half. So, on behalf of my
+half, I'm asking you, pitching you even. Step up. Be the fucking hero
+who hides inside of you. We just need to align on the message we're
+putting out. You don't have to tell me what you're going to write. I
+just want to know that you're not just hammering a simplistic pro-life
+message."
+
+"I am lucky enough to have a smart readership. I appreciate that women
+have an obvious agenda here, but who's speaking up for the unborn?
+They're the real underdogs in this story."
+
+"Jesus, Jonathan. Are you married? Do you have a girlfriend or
+something?" asked Dee-Ann.
+
+"Something." Jonathan did not commit.
+
+"Right, well, if your Something were to fall pregnant, Jonathan, and
+through some tragic accident of nature, some anomaly of pregnancy, she
+had a choice between the life of her uninvited womb squatter, and her
+own life, which underdog would you be cheering on?"
+
+"Yeah, OK. Clearly it's not simple."
+
+"Yes, Jonathan. Thank you. There is no real underdog. There are real
+people, and there are pre-people, and they all have value, but they're
+not the same."
+
+Jonathan felt lectured.
+
+Dee-Ann sighed. "Hmmm. I didn't mean to---Look. Will you work with me
+here?"
+
+Jonathan thought. And then hedged, "I'm not committing to anything. But
+I will say this: I am sympathetic to your point of view. We do want the
+same future. I will make sure that my output respects that."
+
+"Well, that's not as much as I was hoping for, but it is more than I
+expected. Thank you, Jonathan. Good chat."
+
+"Ha. Good chat, Dee-Ann. I'll see you round."
+
+"You will indeed. Read you later, Jonathan."
