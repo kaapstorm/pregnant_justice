@@ -71,12 +71,12 @@ in a mind possessed by a demon from the depths of Hell.
 the New York Chronicle, proudly proclaimed this morning; I don't read
 it either. But it is truly sickening.
 
-"Someone surgically implanted a man -- can we still use that word? -- a
-penised person -- a congressman to be specific, with a human fetus.
-They surgically impregnated him. Raped him, essentially. And now the
-woke lunatics on the left are heralding this as a victory for the
-rights of pregnant people. Or something. Who knows what's going through
-their scrambled minds? All I know is that they sentenced a baby to it's
+"Someone surgically implanted a man---can we still use that word?---a
+penised person, a congressman to be specific, with a human fetus. They
+surgically impregnated him. Raped him, essentially. And now the woke
+lunatics on the left are heralding this as a victory for the rights of
+pregnant people. Or something. Who knows what's going through their
+scrambled minds? All I know is that they sentenced a baby to it's
 death, and they seriously endangered the life of a congressman.
 
 "That is not just murder and attempted murder. I don't think it's a
@@ -152,7 +152,9 @@ Herman."
 
 Herman took a breath, and jumped in. "Bill Palatine, the recently
 pregnant congressman from South Carolina, is not the only pregnant man.
-I know of one other. Myself."
+I know of one other:
+
+"Myself."
 
 "Damn," whispered Jonathan. "Sorry, Herman," he apologised. "I was not
 expecting that."
@@ -217,7 +219,7 @@ talk more then."
 
 "Hi, Dee-Ann Freeman?"
 
-"This is she," Said Dee-Ann.
+"This is she," said Dee-Ann.
 
 "Hi. My name is Louise Newton. I believe you have spoken with my
 associate Jane."
