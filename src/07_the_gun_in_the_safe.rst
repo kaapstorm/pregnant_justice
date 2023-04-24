@@ -1,8 +1,10 @@
 The Gun in the Safe
 ===================
 
+.. todo: change
 .. note:: Wednesday morning, December 21, 2022
 
+.. todo: change
 Speaking to Jonathan Whittaker-Innes had made a huge difference to
 Herman Crowbell. It gave him a sense of agency. He wasn't just a victim
 of a violent crime. He now had a purpose: To wrestle back the public

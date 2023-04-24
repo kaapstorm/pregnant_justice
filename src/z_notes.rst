@@ -7,7 +7,7 @@ Dramatis personae
 Justice Herman Crowbell ("crow" like the bird):
     An associate justice on the US Supreme Court
 
-Guinevere "Gwin" Crowbell:
+Guinevere "Gwin" Crowbell née Leslie:
     Wife of Herman Crowbell
 
 Louise Newton:
@@ -52,3 +52,6 @@ Emily:
 
 Jonathan Whittaker-Innes:
     Reporter for the Washington Mercury
+
+Molly Keith:
+    Doula of Herman Crowbell
