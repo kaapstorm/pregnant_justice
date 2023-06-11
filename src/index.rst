@@ -24,7 +24,8 @@ by Norman Hooper
    04_ectopic
    05_news
    06_doula
-   07_the_gun_in_the_safe
+   07_herman_and_louise
+   08_the_gun_in_the_safe
    z_notes
 
 
