@@ -96,17 +96,19 @@ wearing a patch."
 "Alright. Progesterone is a hormone that your fetus needs for
 development. So I'm going to give you a bunch of patches. You're going
 to put the first one on your thigh in a minute. Every two days you put
-a new one on, and you leave each one on for eight days. So after 8 days
-you'll end up with four at a time. Just put them in a ring around your
-thigh, and once you have four, pull the oldest one off when you put a
-new one on. Does that make sense?"
+a new one on, and you leave each one on for eight days.
+
+That sounds like it will get complicated, but it's not that bad. After 8
+days you'll end up with four at a time. Just put them in a ring around
+your thigh, and once you have four, pull the oldest one off when you
+put a new one on. Does that make sense?"
 
 "Yeah," confirmed Herman, "Put on a new patch every two days. I'll
 diarize it. Once I have four, swap the oldest one out."
 
-"You got it." Molly pulled two-inch-by-two-inch pink box out of her
-bag, and gave it to Herman. "You can put the first one on now. Let me
-know if you'd like a hand."
+"You got it." Molly pulled a pink box out of her bag, and gave it to
+Herman. "You can put the first one on now. Let me know if you'd like a
+hand."
 
 "Here or in the bathroom?"
 
@@ -128,7 +130,7 @@ forward.
 
 "Obviously your pregnancy is the first time a man has been pregnant.
 
-There is a lot that we just don't know, and you are our guinea pig. But
+"There is a lot that we just don't know, and you are our guinea pig. But
 there are a few things that we suspect. Fetal sex development involves
 hormone signalling between the mother and the fetus, and your body is
 probably not going to do that. So the chances seem quite high that your
@@ -174,8 +176,8 @@ lot more accepting of differences. They can be happy, and find loving,
 fulfilling relationships, regardless of the sex organs they are born
 with."
 
-"Won't they, excuse the language, get the shit kicked out of them at
-school?" Herman remembered that kids can be savage and brutal.
+"Won't they get beaten up at school?" Herman remembered that kids can be
+savage and brutal.
 
 "My advice then," smirked Molly, "is not to send your child to the
 school you went to. The truth is, if you tell children what is normal,
@@ -189,9 +191,10 @@ Molly thought she did, "That's boys-only, in Hartford, right?"
 "Best school in Connecticut," confirmed Herman.
 
 Molly didn't think so. "Yeah, if your baby has XY chromosomes, and can
-pass as a boy by the age of 15, I would not recommend Avon. No, let's
+pass as a boy by the age of 15, I would not recommend Avon. No, let me
 put that differently: I will come back here, and shout at you, as loud
-as I can, for as long as I can."
+as I can, for as long as I can, until you put him down for a different
+school."
 
 "Why, what's wrong with Avon?" Herman's loyalties were being tested.
 
@@ -224,7 +227,7 @@ Molly looked at him, mulling her next sentence. "I would ask you to
 define what you mean by that, but you're going to fuck it up. So let's
 rather skip that. I mean a 'liberal' school. In the John Stuart Mill
 sense, right? The Thomas Jefferson sense. _Not_ the Tucker Carlson
-sense. A school where kids can be whatever they want to be. It's easy
+sense. A school where kids can be whoever they want to be. It's easy
 to spot these schools. When you go for the interview with the head
 teacher, look around. If the kids look like they just walked off the
 set of 'Fame', you're in the right place."
@@ -249,7 +252,7 @@ you're already going through stuff that's wildly different, and new. Are
 you keeping a diary?"
 
 Herman said, "No. I haven't kept a diary since I was a teenager. My best
-friend found it, and, well, I stopped keeping a diary."
+friend found it, and, well, I stopped keeping a diary after that."
 
 "Keep a diary." Molly suggested. "Write it for public consumption. And
 especially for a medical and scientific audience. I'd like to publish on
@@ -260,10 +263,10 @@ they're old enough, your child.
 "Herman," Molly looked him right in the eyes. "I appreciate that you're
 having this baby because you feel it's the right thing to do. But this
 baby is more important than that. More significant. Have this baby for
-humanity. We all going to be taking meaning from this. What it means to
-be a woman. What it means to be a man. The duties that fall to us. The
-honors given to us. It's about so, so much more than you Herman. Have
-you thought about that?"
+humanity. We're all going to be taking meaning from this. What it means
+to be a woman. What it means to be a man. The duties that fall to us.
+The honors given to us. It's about so, so much more than you, Herman.
+Have you thought about that?"
 
 "Not the way you put that, no," Herman admitted. "But I will."
 

@@ -29,7 +29,7 @@ it be?"
 
 "OK?"
 
-"How do we make a congressman pregnant?" Louise asked?
+"How do we make a congressman pregnant?" Louise asked.
 
 "A male congressman?" checked Katherine.
 
@@ -43,8 +43,8 @@ It'll just get expelled. Also ... are you fucking crazy?"
 "Hey," defended Louise, "these guys are never going to get it. How can
 they? Look where they come from. 'Good ol' boys'? The 'kind of man you
 can have a beer with'?" Louise made scare quotes with her fingers. "We
-all know that means, right? It means the kind of guy who reckons 'the
-ladyfolk' are unfathomable. So why would a man ever even try to
+all know what that means, right? It means the kind of guy who reckons
+'the ladyfolk' are unfathomable. So why would a man ever even try to
 understand what it's like to have an invader inside you?---Did any of
 you ever do philosophy at college?"
 
@@ -54,8 +54,8 @@ A round of "no"s.
 freshman year of Philosophy 101. Picture this: You wake up in a
 hospital. You try to sit up, but you realise you are handcuffed to your
 bed. Then you notice that there are tubes running from you to the bed
-next to you, and in that bed is Mitch McConnell. You start shouting for
-a nurse, and in walks, uh, Katherine, who's a nurse on your ward?"
+next to you, and in that bed is, uh, Mitch McConnell. You start shouting
+for a nurse, and in walks, uh, Katherine, who's a nurse on your ward?"
 
 "Tom Fieldgate. Big guy. Sound like the right guy for this thought
 experiment," Katherine says.
@@ -87,9 +87,9 @@ Katherine.
 
 Rob spoke up, "Maybe. You see, 'never going to work' sounds like a
 challenge to me. That sounds like an engineering problem. And James and
-I know all about those. That's what we do. Plus, you're a matron. You
-can get the things we need. Maybe you can even ask doctors questions,
-in a round-about way, and solve some of the problems we're going to
+I know about those. That's what we do. Plus, you're a matron. You can
+get the things we need. Maybe you can even ask doctors questions, in a
+round-about way, and solve some of the problems we're going to
 encounter."
 
 "I don't know guys. This sounds like a career ender. This sounds like

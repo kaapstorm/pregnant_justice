@@ -23,7 +23,7 @@ whisky, and why the South likes whiskey that tastes like sunshine and
 summer rain, and the Scots like whisky that tastes like smoke and salt
 and sea. And after that it was like the night had a big hole in it. Did
 he pass out? He hadn't passed out like that since Yale, and he
-difinitely didn't drink as much last night as he had then. ... Had he?
+definitely didn't drink as much last night as he had then. ... Had he?
 He didn't have a headache. His belly felt a little sore though.
 
 He decided to get up. Maybe he'd find Gwinny in the livingroom. As he
